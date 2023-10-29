@@ -1,2 +1,0 @@
-# Buat-hilya
-Untuk kamu
